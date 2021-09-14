@@ -1,2 +1,0 @@
-# ProyectoTIC
-# ProyectoTIC
